@@ -1,2 +1,6 @@
-GO TO THIS LINK 
-https://inanothersight.github.io/afuture.github.io/
+ACCOUNT NO LONGER USED - RETURN BACK 
+
+STAGE 4 HAS ENDED, THIS IS OUT OF BOUNDARIES ! 
+VIEW THE GPZ (GENERAL PURPOSE ZONE) FOR FURTHER INFORMATION REGARDING STAGE 5 BOUNDARIES !
+
+"You are going in no direction musab.." 
